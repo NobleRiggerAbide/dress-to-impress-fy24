@@ -1,4 +1,4 @@
-#  
+#  Experience dress to impress like never before with secret Scripts for dress to impress, the #1 Script. Includes infinite resources and instant win
 
 
 
